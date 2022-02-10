@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Galadriel125
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+- 🌱 Check the news <a href="https://brokerreviews.net/lista-de-brokers/" title="CIBfx opiniones">CIBfx opiniones</a>
+- 💞️ I’m looking to lear from trading onlie
 - 📫 How to reach me <a href="https://cibfx.com/es" title="CIBfx">CIBfx</a>
 
 <!---
